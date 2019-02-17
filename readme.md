@@ -1,6 +1,10 @@
-# Book Navigation
-All book club updates are located in the [Wiki](https://github.com/jstrong013/BookClub/wiki). 
+Welcome to the book club repository. 
 
-[Books and Brews](https://github.com/jstrong013/BookClub/wiki/Books-&-Brews)
+# Directory for Book Clubs
+* [Books and Brews](https://github.com/jstrong013/BookClub/blob/master/Books-and-Brews.md)
+* [20-30 Something Book Club](https://github.com/jstrong013/BookClub/blob/master/20-30-Something-Book-Club.md)
 
-[20-30 Something Book Club](https://github.com/jstrong013/BookClub/wiki/20-30-Something-Book-Club)
+## Background on Wiki
+This is my location to post, reflect, and keep track of the books that were suggested, organized, and otherwise related (or not related) to book club(s). 
+
+So, in all reality, just a bunch of book suggestions and notes. 
