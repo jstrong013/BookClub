@@ -7,6 +7,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 ### Book History and Reading List
 
 #### 2019
+* The Paris Architect: A Novel by Charles Belfoure - Saturday, May 11, 2019, at Katherine's apartment rooftop (Chosen by Katherine)
 * Food: A Love Story by Jim Gaffigan - Friday, March 29, 2019, at Steel Toe Brewing (Chosen by Vincent)
 * Hillbilly Elegy: A Memoir of a Family and Culture in Crisis by J.D. Vance - Friday, February 15, 2019, at Lake Monster Brewing (Chosen by Megan)
 * The Pleasure of My Company by Steve Martin - Friday, January 11, 2019, at Headflyer Brewing in Northeast (chosen by Leah)
