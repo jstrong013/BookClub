@@ -7,6 +7,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 ### Book History and Reading List
 
 #### 2019
+* This Is It: and Other Essays on Zen and Spirtual Experience by Alan Watts - Friday, August 2, 2019, at LynLake Brewery (Chosen by Rachel)
 * A Voyage for Madmen by Peter Nichols - Sunday, June 23, 2019, at James's apartment (Chosen by Simon)
 * The Paris Architect: A Novel by Charles Belfoure - Saturday, May 11, 2019, at Katherine's apartment rooftop (Chosen by Katherine)
 * Food: A Love Story by Jim Gaffigan - Friday, March 29, 2019, at Steel Toe Brewing (Chosen by Vincent)
