@@ -6,8 +6,11 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 
 ### Book History and Reading List
 
+#### 2020
+* Beartown: A Novel by Fredrik Backman - Saturday, January 25, 2019 at InBound Brew Co. (Chosen by Brendon)
+
 #### 2019
-* The Heroin Diaries: A Year in the Life of a Shattered Rockstar - Friday, December 13, 2019 at Lakes and Legends Brewing (Chosen by Sam)
+* The Heroin Diaries: A Year in the Life of a Shattered Rockstar by Nikki Sixx - Friday, December 13, 2019 at Lakes and Legends Brewing (Chosen by Sam)
 * Their Eyes Were Watching God by Zora Neal Hurston - Saturday, November 9, 2019 at James's Apartment (chosen by James)
 * The Red Market: On the Trail of the World's Organ Brokers, Bone Theives, Blood Farmers, and Child Traffickers - Friday, September 20, 2019, at Vincent's Apartment (Chosen by Simon/Katherine) 
   * _Book and Brews annual awards ceremony_
