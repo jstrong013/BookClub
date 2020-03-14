@@ -7,7 +7,8 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 ### Book History and Reading List
 
 #### 2020
-* Beartown: A Novel by Fredrik Backman - Saturday, January 25, 2019 at InBound Brew Co. (Chosen by Brendon)
+* Circe by Madeline Miller - Friday, March 6, 2020 at Insight Brewing & Taproom (Chosen by Tracy)
+* Beartown: A Novel by Fredrik Backman - Saturday, January 25, 2020 at InBound Brew Co. (Chosen by Brendon)
 
 #### 2019
 * The Heroin Diaries: A Year in the Life of a Shattered Rockstar by Nikki Sixx - Friday, December 13, 2019 at Lakes and Legends Brewing (Chosen by Sam)
