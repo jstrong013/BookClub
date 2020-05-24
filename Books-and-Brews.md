@@ -7,6 +7,8 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 ### Book History and Reading List
 
 #### 2020
+* The Gunslinger by Stephen King - Friday, May 15, 2020 via Skype for Business Meeting (Chosen by Katy)
+  * COVID-19: Minnesota under a Stay at Home order.
 * Persepolis: The Story of a Childhood (Pantheon Graphic Library) - Friday, April 10, 2020 via Skype for Business Meeting (Chosen by Leah)
   * COVID-19: Minnesota under a Stay at Home order. 
 * Circe by Madeline Miller - Friday, March 6, 2020 at Insight Brewing & Taproom (Chosen by Tracy)
