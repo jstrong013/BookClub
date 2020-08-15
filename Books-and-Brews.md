@@ -5,9 +5,10 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-17 Books since inception! 
+18 Books since inception! 
 
 #### 2020
+* The Great Believers by Rebecca Makkai - Friday, August 14, 2020 Pryes Brewing Company (Chosen by Simon)
 * The Gunslinger by Stephen King - Friday, May 15, 2020 via Skype for Business Meeting (Chosen by Katy)
   * COVID-19: Minnesota under a Stay at Home order.
 * Persepolis: The Story of a Childhood (Pantheon Graphic Library) - Friday, April 10, 2020 via Skype for Business Meeting (Chosen by Leah)
@@ -15,7 +16,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Circe by Madeline Miller - Friday, March 6, 2020 at Insight Brewing & Taproom (Chosen by Tracy)
 * Beartown: A Novel by Fredrik Backman - Saturday, January 25, 2020 at InBound Brew Co. (Chosen by Brendon)
 
-Total: 2020: 4 Books
+Total: 2020: 5 Books
 
 #### 2019
 * The Heroin Diaries: A Year in the Life of a Shattered Rockstar by Nikki Sixx - Friday, December 13, 2019 at Lakes and Legends Brewing (Chosen by Sam)
