@@ -8,7 +8,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 18 Books since inception! 
 
 #### 2020
-* The Great Believers by Rebecca Makkai - Friday, August 14, 2020 Pryes Brewing Company (Chosen by Simon)
+* The Great Believers by Rebecca Makkai - Friday, August 14, 2020 at Pryes Brewing Company (Chosen by Simon)
 * The Gunslinger by Stephen King - Friday, May 15, 2020 via Skype for Business Meeting (Chosen by Katy)
   * COVID-19: Minnesota under a Stay at Home order.
 * Persepolis: The Story of a Childhood (Pantheon Graphic Library) - Friday, April 10, 2020 via Skype for Business Meeting (Chosen by Leah)
