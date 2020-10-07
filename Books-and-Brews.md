@@ -8,6 +8,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 18 Books since inception! 
 
 #### 2020
+* Trustee from the Toolroom by Nevil Shute - Friday, September 18, 2020 at Sam's Apartment (Chosen by Jared)
 * The Great Believers by Rebecca Makkai - Friday, August 14, 2020 at Pryes Brewing Company (Chosen by Simon)
 * The Gunslinger by Stephen King - Friday, May 15, 2020 via Skype for Business Meeting (Chosen by Katy)
   * COVID-19: Minnesota under a Stay at Home order.
@@ -16,7 +17,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Circe by Madeline Miller - Friday, March 6, 2020 at Insight Brewing & Taproom (Chosen by Tracy)
 * Beartown: A Novel by Fredrik Backman - Saturday, January 25, 2020 at InBound Brew Co. (Chosen by Brendon)
 
-Total: 2020: 5 Books
+Total: 2020: 6 Books
 
 #### 2019
 * The Heroin Diaries: A Year in the Life of a Shattered Rockstar by Nikki Sixx - Friday, December 13, 2019 at Lakes and Legends Brewing (Chosen by Sam)
