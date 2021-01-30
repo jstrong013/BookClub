@@ -5,7 +5,12 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-20 Books since inception! 
+21 Books since inception! 
+
+#### 2021
+* In the Lake of the Woods by Tim O'Brien - Friday, January 29, 2021 via Google Meets (Chosen by Leah) 
+
+Total 2021: 1 Book
 
 #### 2020
 * Americanah by Chimamanda Ngozi Adichie - Friday, December 18, 2020 via Zoom Meeting (Chosen by Tracy)
@@ -20,7 +25,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Circe by Madeline Miller - Friday, March 6, 2020 at Insight Brewing & Taproom (Chosen by Tracy)
 * Beartown: A Novel by Fredrik Backman - Saturday, January 25, 2020 at InBound Brew Co. (Chosen by Brendon)
 
-Total: 2020: 8 Books
+Total 2020: 8 Books
 
 #### 2019
 * The Heroin Diaries: A Year in the Life of a Shattered Rockstar by Nikki Sixx - Friday, December 13, 2019 at Lakes and Legends Brewing (Chosen by Sam)
