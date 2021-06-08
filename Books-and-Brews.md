@@ -5,13 +5,15 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-22 Books since inception!
+24 Books since inception!
 
-#### 2021
+#### 2021  
+* An Elderly Lady is Up to No Good by Helene Tursten - Friday, June 4, 2021 at Broken Clock Brewing Cooperative (Chosen by Katy P.)
+* Red Mars by Kim Stanley - Saturday, May 1, 2021 at Forgotten Star Brewery (Chosen by Tracy L.)  
 * Where the Lost Wander by Amy Harmon - Friday, March 26, 2021 at Sam's Apartment (Chosen by Rachel C.)
 * In the Lake of the Woods by Tim O'Brien - Friday, January 29, 2021 via Google Meets (Chosen by Leah O.)
 
-Total 2021: 2 Book
+Total 2021: 4 Book
 
 #### 2020
 * Americanah by Chimamanda Ngozi Adichie - Friday, December 18, 2020 via Zoom Meeting (Chosen by Tracy L.)
