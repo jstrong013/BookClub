@@ -5,9 +5,10 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-27 Books since inception!
+28 Books since inception!
 
 #### 2021  
+* Nightbitch: A Novel by Rachel Yoder - Friday, November 12, 2021 at Able Seedhouse & Brewery (Chosen by Leah O.)  
 * Star Maker by Olaf Stapledon - Friday, September 24, 2021 at Lakes and Legends (Chosen by Megan S.)  
 * Red at the Bone by Jacqueline Woodson - Friday, August 20, 2021 at LynLake Brewery (Chosen by James L.)
 * Report to the National Football League Concerning Issues of Workplace Conduct at the Miami Dolphins by Paul, Weiss, Rifkind, Wharton & Garrison LLP - Friday, July 9, 2021 at Brit's Pub (Chosen by Sam M.)
@@ -16,7 +17,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Where the Lost Wander by Amy Harmon - Friday, March 26, 2021 at Sam's Apartment (Chosen by Rachel C.)
 * In the Lake of the Woods by Tim O'Brien - Friday, January 29, 2021 via Google Meets (Chosen by Leah O.)
 
-Total 2021: 7 Books
+Total 2021: 8 Books
 
 #### 2020
 * Americanah by Chimamanda Ngozi Adichie - Friday, December 18, 2020 via Zoom Meeting (Chosen by Tracy L.)
