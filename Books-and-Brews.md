@@ -8,10 +8,10 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 31 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Friday, May 20th at 7pm  
 * Friday, June 24th at 7pm  
 
 #### 2022  
+* Pop. 1280 by Jim Thompson - Friday, May 5/20 at La Doña Cervecería (Chosen by James L.)  
 * Talking to Strangers: What We Should Know about the People We Don't Know by Malcolm Gladwell - Friday, April 8, 2022 at First Draft (Chosen by Sam M.)  
 * Kings of the Wyld (The Band) by Nicholas Eames - Friday, February 25, 2022 at Arbeiter Brewing Co. (Chosen by Katy P.)
 * Earthcore by Scott Sigler - Saturday, January 15, 2022 at Pryes Brewing Co. (Chosen by Vee L.)  
