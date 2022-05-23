@@ -5,7 +5,7 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-31 Books since inception!  
+32 Books since inception!  
 
 ### Next Book Club Meetup Dates  
 * Friday, June 24th at 7pm  
@@ -16,7 +16,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Kings of the Wyld (The Band) by Nicholas Eames - Friday, February 25, 2022 at Arbeiter Brewing Co. (Chosen by Katy P.)
 * Earthcore by Scott Sigler - Saturday, January 15, 2022 at Pryes Brewing Co. (Chosen by Vee L.)  
 
-Total 2022: 3 Book  
+Total 2022: 4 Book  
 
 #### 2021  
 * Nightbitch: A Novel by Rachel Yoder - Friday, November 12, 2021 at Able Seedhouse & Brewery (Chosen by Leah O.)  
