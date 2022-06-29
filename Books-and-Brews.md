@@ -5,18 +5,22 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-32 Books since inception!  
+33 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Friday, June 24th at 7pm  
+* Friday, July 29th at 7pm
+* Friday, August 26th at 7pm
+* Friday, September 30th at 7pm
+* Friday, October 28th at 7pm
 
 #### 2022  
-* Pop. 1280 by Jim Thompson - Friday, May 5/20 at La Doña Cervecería (Chosen by James L.)  
+* Fuzz: When Nature Breaks the Law by Mary Roach - Friday, June 24, 2022 at HeadFlyer Brewing (Chosen by Leah O.)   
+* Pop. 1280 by Jim Thompson - Friday, May 5, 2022 at La Doña Cervecería (Chosen by James L.)  
 * Talking to Strangers: What We Should Know about the People We Don't Know by Malcolm Gladwell - Friday, April 8, 2022 at First Draft (Chosen by Sam M.)  
 * Kings of the Wyld (The Band) by Nicholas Eames - Friday, February 25, 2022 at Arbeiter Brewing Co. (Chosen by Katy P.)
 * Earthcore by Scott Sigler - Saturday, January 15, 2022 at Pryes Brewing Co. (Chosen by Vee L.)  
 
-Total 2022: 4 Book  
+Total 2022: 5 Book  
 
 #### 2021  
 * Nightbitch: A Novel by Rachel Yoder - Friday, November 12, 2021 at Able Seedhouse & Brewery (Chosen by Leah O.)  
@@ -60,8 +64,8 @@ Total 2020: 8 Books
 Total 2019: 9 Books
 
 #### 2018
-* The Penultimate Truth by Philip K. Dick - Meetup occurred Friday, December 14, 2018, at Headflyer Brewing in Northeast (Chosen by James L.)
-* The Grip of It: A Novel by Jac Jemc - Book discussion and meetup occurred Friday, November 16, 2018, at Modist Brewing Company (Chosen by Brendon L.)
-* Seductive Poison: A Jonestown Survivors Story in the People's Temple by Deborah Layton - Book discussion and meetup occurred Friday, October 12, 2018, at Lakes and Legends Brewing (Chosen by Sam M.)
+* The Penultimate Truth by Philip K. Dick - Friday, December 14, 2018, at Headflyer Brewing in Northeast (Chosen by James L.)
+* The Grip of It: A Novel by Jac Jemc - Friday, November 16, 2018, at Modist Brewing Company (Chosen by Brendon L.)
+* Seductive Poison: A Jonestown Survivors Story in the People's Temple by Deborah Layton - Friday, October 12, 2018, at Lakes and Legends Brewing (Chosen by Sam M.)
 
 Total 2018: 3 Books
