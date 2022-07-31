@@ -5,22 +5,22 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-33 Books since inception!  
+34 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Friday, July 29th at 7pm
 * Friday, August 26th at 7pm
 * Friday, September 30th at 7pm
 * Friday, October 28th at 7pm
 
 #### 2022  
+* Kitchen Confidential: Adventures in the Culinary Underbelly by Anthony Bourdain - Friday, July 29, 2022 at Utepils Brewing (Chosen by Dan N.) 
 * Fuzz: When Nature Breaks the Law by Mary Roach - Friday, June 24, 2022 at HeadFlyer Brewing (Chosen by Leah O.)   
 * Pop. 1280 by Jim Thompson - Friday, May 5, 2022 at La Doña Cervecería (Chosen by James L.)  
 * Talking to Strangers: What We Should Know about the People We Don't Know by Malcolm Gladwell - Friday, April 8, 2022 at First Draft (Chosen by Sam M.)  
 * Kings of the Wyld (The Band) by Nicholas Eames - Friday, February 25, 2022 at Arbeiter Brewing Co. (Chosen by Katy P.)
 * Earthcore by Scott Sigler - Saturday, January 15, 2022 at Pryes Brewing Co. (Chosen by Vee L.)  
 
-Total 2022: 5 Book  
+Total 2022: 6 Book  
 
 #### 2021  
 * Nightbitch: A Novel by Rachel Yoder - Friday, November 12, 2021 at Able Seedhouse & Brewery (Chosen by Leah O.)  
