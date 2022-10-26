@@ -8,7 +8,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 35 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Friday, October 28th at 7pm
+* Friday, October 28th at 7pm: The Jakarta Method by Vincent Bevins
 * Tentative - Friday Novemeber 25 at 7pm 
 * Tentative - Friday, December 30 at 7pm
 
