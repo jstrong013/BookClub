@@ -8,10 +8,12 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 35 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Friday, September 30th at 7pm
 * Friday, October 28th at 7pm
+* Tentative - Friday Novemeber 25 at 7pm 
+* Tentative - Friday, December 30 at 7pm
 
 #### 2022  
+* (Reselected) Red at the Bone by Jacqueline Woodson - Friday, September 30, 2022 at Saint Paul Brewing (Chosen by Christian H.)
 * Klara and the Sun by Kazuo Ishiguro - Friday, August 26, 2022 at BlackStack Brewing (Chosen by Christian)
 * Kitchen Confidential: Adventures in the Culinary Underbelly by Anthony Bourdain - Friday, July 29, 2022 at Utepils Brewing (Chosen by Dan N.)
 * Fuzz: When Nature Breaks the Law by Mary Roach - Friday, June 24, 2022 at HeadFlyer Brewing (Chosen by Leah O.)   
