@@ -8,7 +8,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 37 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Tentative - Friday, December 2 at 7pm 
+* Tentative - Friday, December 2 at 7pm - Crying in H Mart by Michelle Zauner
 
 #### 2022   
 * The Jakarta Method by Vincent Bevins - Friday, October 28, 2022 at The Market at Malcolm Yards (Chosen by Wes D.)  
