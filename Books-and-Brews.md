@@ -5,12 +5,13 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-37 Books since inception!  
+38 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Tentative - Friday, December 2 at 7pm - Crying in H Mart by Michelle Zauner
+
 
 #### 2022   
+* Crying in H Mart by Michelle Zauner - Friday, December 2, 2022 at Falling Knife Brewing Company (Chosen by Beth R.)  
 * The Jakarta Method by Vincent Bevins - Friday, October 28, 2022 at The Market at Malcolm Yards (Chosen by Wes D.)  
 * (Reselected) Red at the Bone by Jacqueline Woodson - Friday, September 30, 2022 at Saint Paul Brewing (Chosen by Christian H.)
 * Klara and the Sun by Kazuo Ishiguro - Friday, August 26, 2022 at BlackStack Brewing (Chosen by Christian)
@@ -21,7 +22,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Kings of the Wyld (The Band) by Nicholas Eames - Friday, February 25, 2022 at Arbeiter Brewing Co. (Chosen by Katy P.)
 * Earthcore by Scott Sigler - Saturday, January 15, 2022 at Pryes Brewing Co. (Chosen by Vee L.)  
 
-Total 2022: 9 Book  
+Total 2022: 10 Book  
 
 #### 2021  
 * Nightbitch: A Novel by Rachel Yoder - Friday, November 12, 2021 at Able Seedhouse & Brewery (Chosen by Leah O.)  
