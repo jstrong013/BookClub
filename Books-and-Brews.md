@@ -8,7 +8,10 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 38 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* TBD
+* I'm Glad My Mom Died by Jennette McCurdy - Friday, January 6, 2023
+
+#### 2023  
+* *Next book club meetup*
 
 #### 2022   
 * Crying in H Mart by Michelle Zauner - Friday, December 2, 2022 at Falling Knife Brewing Company (Chosen by Beth R.)  
