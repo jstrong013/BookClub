@@ -5,16 +5,18 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-40 Books since inception!  
+42 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* Horus Rising by Dan Abnett - Friday, March 3, 2023
+* TBD  
 
 #### 2023  
+* Hatchet by Gary Paulsen - Friday, April 7, 2023 at Bad Weather Brewing (Chosen by Leah O.)
+* Horus Rising by Dan Abnett - Friday, March 3, 2023 at Minneapolis Cider Company (Chosen by Charles T.)
 * Homo Deus: A Brief History of Tomorrow by Yuval Noah Harari - February 3, 2023 at Pryes Brewing (Chosen by Mickey L.)  
 * I'm Glad My Mom Died by Jennette McCurdy - Friday, January 6, 2023 at BlackStack Brewing (Chosen by Tom H.)  
 
-Total 2023: 2 Books
+Total 2023: 4 Books
 
 #### 2022   
 * Crying in H Mart by Michelle Zauner - Friday, December 2, 2022 at Falling Knife Brewing Company (Chosen by Beth R.)  
