@@ -5,19 +5,20 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-43 Books since inception!  
+44 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* June 2, 2023: Kings of the Wyld by Nicholas Eames
+* July 7, 2023: Electric Dreams by Philip K. Dick  
 
 #### 2023  
-* 438 Days: An Extraordinary True Story of Survival at Sea by Jonathan Franklin - Friday, May 5th, 2023 (Chosen by Donny)
+* Kings of the Wyld by Nicholas Eames - Friday, June 2, 2023 at Sociable Cider Werks (Chosen by Katy P.)  
+* 38 Days: An Extraordinary True Story of Survival at Sea by Jonathan Franklin - Friday, May 5th, 2023 (Chosen by Donny)
 * Hatchet by Gary Paulsen - Friday, April 7, 2023 at Bad Weather Brewing (Chosen by Leah O.)
 * Horus Rising by Dan Abnett - Friday, March 3, 2023 at Minneapolis Cider Company (Chosen by Charles T.)
 * Homo Deus: A Brief History of Tomorrow by Yuval Noah Harari - February 3, 2023 at Pryes Brewing (Chosen by Mickey L.)  
 * I'm Glad My Mom Died by Jennette McCurdy - Friday, January 6, 2023 at BlackStack Brewing (Chosen by Tom H.)  
 
-Total 2023: 5 Books
+Total 2023: 6 Books
 
 #### 2022   
 * Crying in H Mart by Michelle Zauner - Friday, December 2, 2022 at Falling Knife Brewing Company (Chosen by Beth R.)  
