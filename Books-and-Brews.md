@@ -8,7 +8,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 46 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* September 8, 2023: TBD  
+* September 8, 2023: Five Year Anniversary Shindig  
 
 #### 2023  
 * Haunted by Chuck Palahniuk - Friday, August 4, 2023 at Wandering Leaf (Chosen by Megan S.)
