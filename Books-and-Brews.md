@@ -5,12 +5,19 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-46 Books since inception!  
+48 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* September 8, 2023: Five Year Anniversary Shindig  
+* TBD by Sam M.  
+
+#### 2024  
+
+Total 2024: 0 Books  
 
 #### 2023  
+* Piranesi by Susanna Clarke - Friday, December 1, 2023 at Under Pressure Brewing (Chosen by Jordan B.)  
+* The Parable of the Sower by Octavia Butler - Friday, October 6, 2023 at Burning Brothers Brewing (Chosen by Wes)  
+* Five-Year Anniversary Event (No Book) - Friday, September 8, 2023 at Bauhaus Brew Labs (Lead by Sam M.)  
 * Haunted by Chuck Palahniuk - Friday, August 4, 2023 at Wandering Leaf (Chosen by Megan S.)
 * Electric Dreams by Philip K. Dick - Friday, July 7, 2023 at Indeed Brewing Co. (Chosen by Rachel C.)
 * Kings of the Wyld by Nicholas Eames - Friday, June 2, 2023 at Sociable Cider Werks (Chosen by Katy P.)  
@@ -20,7 +27,7 @@ The group primarily meets up on Friday evenings between the hours of 7 and 9 pm.
 * Homo Deus: A Brief History of Tomorrow by Yuval Noah Harari - February 3, 2023 at Pryes Brewing (Chosen by Mickey L.)  
 * I'm Glad My Mom Died by Jennette McCurdy - Friday, January 6, 2023 at BlackStack Brewing (Chosen by Tom H.)  
 
-Total 2023: 8 Books
+Total 2023: 10 Books
 
 #### 2022   
 * Crying in H Mart by Michelle Zauner - Friday, December 2, 2022 at Falling Knife Brewing Company (Chosen by Beth R.)  
