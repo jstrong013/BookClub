@@ -5,14 +5,18 @@ This Book Club was founded by the legendary gentleman Sam. The origination of th
 The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
 
 ### Book History and Reading List
-48 Books since inception!  
+51 Books since inception!  
 
 ### Next Book Club Meetup Dates  
-* TBD by Sam M.  
+* Anne of Green Gables by Lucy Maud Montgomery - Friday, May 3, 2024  
 
 #### 2024  
+* The Quiet Zone: Unraveling the Mystery of a Town Suspended in Silence by Stephen Kurczy - Friday, April 5, 2024 at Bang Brewing (Chosen by Mickey)  
+* Neuromancer by William Gibson - Friday, March 1, 2024 at Lake Monster Brewing (Chosen by Tom H.)
+* The Colour of Magic by Terry Pratchett - Friday, February 2, 2024 at Wooden Ship Brewing (Chosen by Leah O.)  
+* *Podcast* - "The Kids of Rutherford County" by Serial Production - Friday, January 5, 2024 at Memory Lanes (Chosen by Sam S.)
 
-Total 2024: 0 Books  
+Total 2024: 3 Books  
 
 #### 2023  
 * Piranesi by Susanna Clarke - Friday, December 1, 2023 at Under Pressure Brewing (Chosen by Jordan B.)  
