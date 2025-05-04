@@ -1,22 +1,29 @@
 # Books and Brews
-This Book Club was founded by the legendary gentleman Sam. The origination of the book club occurred in Omaha, Nebraska. The book club is now based out of Minneapolis, MN.
+This Book Club was originally founded in Omaha, Nebraska by the legendary gentleman, Sam M. Since its inception, the club has grown and evolved, now calling Minneapolis, MN its home base. As members have relocated across the country, new chapters and similarly named groups have emerged, keeping the spirit of the original club alive in various communities.  
 
 ## Meeting Format
-The group primarily meets up on Friday evenings between the hours of 7 and 9 pm. For the most part, most meetings are social just to catch up on what's new in our lives and of course some good brews.
+The Book Club typically meets on Friday evenings from 7 to 9 PM. Most gatherings are casual and social, providing a chance to catch up on life, share some laughs, and enjoy a few good brews. The reading schedule follows a simple alternating pattern: one month, members share what they’re currently reading; the next month, the group selects a book to read and discuss together - then the cycle repeats.  
 
 ### Book History and Reading List
-51 Books since inception!  
+58 Books since inception!  
 
-### Next Book Club Meetup Dates  
-* Anne of Green Gables by Lucy Maud Montgomery - Friday, May 3, 2024  
+#### 2025  
+* A Tree Grows in Brooklyn by Becky Smith - Friday, May 2, 2025 at Bauhaus Brew Labs (Chosen by Jordan B.)  
+* Wandering Stars by Tommy Orange - Friday, March 7, 2025 at Buch Fermentary & Taproom (Beth R.)  
+* Uzamaki by Junji Ito - Friday, January 3, 2025 at Spiral Brewery (Chosen by Leah O.)  
+
+Total 2025: 3 Books  
 
 #### 2024  
+* A Psalm for the Wild-Built by Becky Chambers - Friday, November 1, 2024 at St. Paul Brewing (Chosen by Rotem)  
+* Blindsight by Peter Watts - Friday, June 7, 2024 at Headflyer Brewing (Chosen by Wes D.)  
+* Anne of Green Gables by Lucy Montgomery - Friday, May 3, 2024 at The Gray Duck Deck bar at The Twins Stadium (Chosen by Rachel C.)  
 * The Quiet Zone: Unraveling the Mystery of a Town Suspended in Silence by Stephen Kurczy - Friday, April 5, 2024 at Bang Brewing (Chosen by Mickey)  
 * Neuromancer by William Gibson - Friday, March 1, 2024 at Lake Monster Brewing (Chosen by Tom H.)
 * The Colour of Magic by Terry Pratchett - Friday, February 2, 2024 at Wooden Ship Brewing (Chosen by Leah O.)  
 * *Podcast* - "The Kids of Rutherford County" by Serial Production - Friday, January 5, 2024 at Memory Lanes (Chosen by Sam S.)
 
-Total 2024: 3 Books  
+Total 2024: 7 Books  
 
 #### 2023  
 * Piranesi by Susanna Clarke - Friday, December 1, 2023 at Under Pressure Brewing (Chosen by Jordan B.)  
